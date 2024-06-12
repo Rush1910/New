@@ -4,10 +4,3 @@ https://www.google.com/search?q=how+to+create+onbord+write+video+on+youtube&rlz=
 
 # Count
 
-pureB2B - 
-	Rugular - 5
-	de and do - 6
-
- changes - 1
-
- Gartner - 3
