@@ -4,3 +4,8 @@ https://www.google.com/search?q=how+to+create+onbord+write+video+on+youtube&rlz=
 
 # Count
 
+pureB2B - 
+	Rugular - 2
+	de and do - 2
+
+ 1105Media - 8
