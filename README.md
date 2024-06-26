@@ -5,3 +5,6 @@ https://www.google.com/search?q=how+to+create+onbord+write+video+on+youtube&rlz=
 # Count
 
 
+https://demandsciencegroup.cvtr.io/lp/slack-resources-6?wp=39453&locale=1
+https://demandsciencegroup.cvtr.io/lp/slack-resources-6?wp=39451&locale=1
+https://demandsciencegroup.cvtr.io/lp/slack-resources-6?wp=39452&locale=1
